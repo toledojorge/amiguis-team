@@ -1,1 +1,1 @@
-# amiguis-team
+# amiguis-team: Nelson, Javier, Jorge
